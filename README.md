@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @krav559108
+- 👀 I’m interested in IT and modern tech.
+- 🌱 I’m currently study Informatik in uni Bayreuth in Germany.
